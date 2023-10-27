@@ -10,8 +10,13 @@
 
 ![image](https://github.com/trodman201/Data-2000-/assets/81587547/c9253743-aa23-48bc-bebb-80e6464ee471)  
 
-![image](https://github.com/trodman201/Data-2000-/assets/81587547/9118bb0e-9622-4f6f-aa30-9aa972ebe9cc)
+![image](https://github.com/trodman201/Data-2000-/assets/81587547/9118bb0e-9622-4f6f-aa30-9aa972ebe9cc) 
 
+![image](https://github.com/trodman201/Data-2000-/assets/81587547/94f4f3c6-7777-45a3-9315-11135095cd2c) 
+
+![image](https://github.com/trodman201/Data-2000-/assets/81587547/5892da0d-a7e2-4e16-ac11-9eff93c5932e) 
+
+![image](https://github.com/trodman201/Data-2000-/assets/81587547/e2360c17-7460-4d2b-ab92-1b702df2ef24)
 
 
 giggling and kicking my feet in the air 
