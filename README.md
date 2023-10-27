@@ -6,6 +6,12 @@
 
 ![83ef37ba86f1ed355eb703d3fb252c87](https://github.com/trodman201/Data-2000-/assets/81587547/07923381-8c3c-4c06-b2bf-a0dbd712ba29) 
 
-![5d2f10562a254c37dec7890c05f17422](https://github.com/trodman201/Data-2000-/assets/81587547/64cfc13f-ca07-4116-ba23-da7a648e9b28) 
+![5d2f10562a254c37dec7890c05f17422](https://github.com/trodman201/Data-2000-/assets/81587547/64cfc13f-ca07-4116-ba23-da7a648e9b28)  
+
+![image](https://github.com/trodman201/Data-2000-/assets/81587547/c9253743-aa23-48bc-bebb-80e6464ee471)  
+
+![image](https://github.com/trodman201/Data-2000-/assets/81587547/9118bb0e-9622-4f6f-aa30-9aa972ebe9cc)
+
+
 
 giggling and kicking my feet in the air 
